@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Yayue
-- 🌱 I’m currently learning at Waseda University as a PhD student of Economics
+- 🌱 I’m currently a PhD student of Economics at Waseda University, Tokyo, Japan
 - 💞️ I’m looking to collaborate on assement of *Energy *Environment *Equity-related issues 
 - 📫 Reach me at Yayue21@akane.waseda.jp
 - 😄 Pronouns: She/her
